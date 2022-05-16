@@ -1,1 +1,1 @@
-SeoJin ConstellatioN
+SeoJin
