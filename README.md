@@ -1,1 +1,1 @@
-SeoJin
+seojin
